@@ -1,1 +1,1 @@
-JS KU RUNG BAR 
+Belum Selesai Bos
